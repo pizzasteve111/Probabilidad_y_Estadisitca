@@ -11,4 +11,8 @@ https://drive.google.com/drive/u/8/folders/1-EnWhNb9C5bKWPSXALOwJua_eGvTwGw9
 https://drive.google.com/file/d/1b6oYxBNXnDDrUaQr8gQ_vBiHmMUYFUqI/view?usp=sharing  
 https://drive.google.com/file/d/1f2lfI73WK3kgQJIZ0cu-GkvJdklSMFnM/view?usp=sharing  
 https://drive.google.com/drive/u/8/folders/1QY5szIYd6J183DbOyiDUhoZicjW0TIS5  
+https://drive.google.com/drive/u/8/folders/1-EnWhNb9C5bKWPSXALOwJua_eGvTwGw9  
+https://drive.google.com/drive/folders/1PO2xQK11sZWGZXj_M4xVDUZs0fggCDMk  
+https://drive.google.com/file/d/1Z_z47NilPNSn8KoiZw7FPkHLn52bJK6n/view  
+https://github.com/carolinamauro/Probabilidad-y-estadistica  
 Exitos!!!!111!!!
