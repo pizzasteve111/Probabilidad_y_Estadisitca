@@ -1,4 +1,4 @@
-# Links Proba(ingresar con mail Fiuba):
+# Links Proba(ingresar con mail Fiuba), commiteen cualquier otro link que encuentren útil:
 https://drive.google.com/drive/folders/1-EnWhNb9C5bKWPSXALOwJua_eGvTwGw9  
 https://drive.google.com/drive/u/8/folders/1tRqQyOwLZJSx4_ZDCwJfFSEjIsBxJu9z  
 https://comunidad-fiuba.github.io/post/parcial-27-05-2023-resuelto  
