@@ -10,6 +10,7 @@ https://drive.google.com/drive/folders/1PO2xQK11sZWGZXj_M4xVDUZs0fggCDMk
 
 
 ## Mi parcial(1 de junio 24) y final(segunda fecha 24C1)
+### Es una carpeta pública donde cualquiera puede ir subiendo sus examenes
 https://drive.google.com/drive/folders/1aixoZwPwgBWWS1fnZLDruVAd01LCuVU4  
 ## Parciales/Finales perdidos
 https://comunidad-fiuba.github.io/post/parcial-27-05-2023-resuelto  
