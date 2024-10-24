@@ -15,6 +15,7 @@ https://drive.google.com/drive/folders/1aixoZwPwgBWWS1fnZLDruVAd01LCuVU4
 ## Parciales/Finales perdidos
 https://comunidad-fiuba.github.io/post/parcial-27-05-2023-resuelto  
 https://github.com/carolinamauro/Probabilidad-y-estadistica  
+https://drive.google.com/drive/u/8/folders/1ORqIse_qyH3YlCABve66qnjIHomGUpb2  
 https://drive.google.com/drive/folders/1-4eQnrMNhimfDR10ogAT6AW0uJRbPxTA  
 https://drive.google.com/drive/u/8/folders/1iCRMsoFX-7c2IMEtixUfng7XvxCkejFx  
 https://drive.google.com/file/d/1wiuo2RNlwWopIzEQL7TCJKxoF39kMkzj/view  
