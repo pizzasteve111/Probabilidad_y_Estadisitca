@@ -3,7 +3,8 @@
 https://drive.google.com/drive/folders/1-EnWhNb9C5bKWPSXALOwJua_eGvTwGw9  
 https://drive.google.com/drive/u/8/folders/1tRqQyOwLZJSx4_ZDCwJfFSEjIsBxJu9z  
 https://drive.google.com/drive/folders/1PO2xQK11sZWGZXj_M4xVDUZs0fggCDMk  
-
+https://drive.google.com/drive/folders/1PAJKuh2kFNPzW2RoUcSdV-6ZhmW4pJxs  
+https://drive.google.com/drive/folders/10mpJfQHma9HeOPxViIaLjwTLcqgrf8mi  
 
 
 ## Mi parcial(1 de junio 24) y final(segunda fecha 24C1)
